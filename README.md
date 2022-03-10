@@ -1,4 +1,4 @@
-# Doid|Saidika|vuvuzela
+# Doit App|Saidika App|vuvuzela App
 Privacy Policy
 Daroos built this app as a Free app. This SERVICE is provided by Daroos at no cost and is intended for use as is.
 
